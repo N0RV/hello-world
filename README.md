@@ -7,3 +7,5 @@ Everything is what you make it.
 
 **Says it again and again** 
 
+
+**Tries to understand GitHub Rules**
