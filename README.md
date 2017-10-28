@@ -12,3 +12,7 @@ Everything is what you make it.
 
 
 **Messes Up** 
+
+
+**Ties to fix things, but ends up doing the opposite** 
+
